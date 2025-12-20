@@ -7,8 +7,8 @@ CALL ME AL!!!
 </h1>
 
 <p align="center">
-C+H YESYESYES I LOVEEEE WHEN POEPLE SIT WITH ME, and if u wanna ttm feel completely free, Ill be a lil awkward but i promise u im filled with joy, feel free to interact literally any time I promise Im not scary ❤️❤️❤️❤️❤️❤️ <br>
-  ALSO, if we're sitting together and u wanna leave or walk away, u dont even gotta say anything, I get ittt <br>
+C+H YESYESYES I LOVEEEE WHEN POEPLE SIT WITH ME, and if u wanna ttm feel completely free, Ill be a lil awkward but i promise u im filled with joy, feel free to interact literally any time I promise Im not scary ❤️❤️❤️❤️❤️❤️ just a warning tho, if im at the south park area im likely off tab, so if i dont reply immedietaly plz dont think im ignoring u 😥 <br>
+  ALSO, if we're sitting together and u wanna leave or walk away, u dont even gotta say anything, u can just go, I get ittt <br>
 <br>
   
 ------------------------------------------------------------------------------------------------------------------
