@@ -7,7 +7,11 @@ CALL ME AL!!!
 </h1>
 
 <p align="center">
-Im still tryna figure out how to do all this lollll, I hate thats its so similar but also so different than spacehey 💔💔
+Im still tryna figure out how to do all this lollll, I hate thats its so similar but also so different than spacehey 💔💔<br>
+<br>
+---
+<br>
+<br>
 
 Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 
@@ -15,18 +19,3 @@ Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 -I draw but its more for myself cuz it looks crappy <br>
 -I lovelovelove stan so much, hes me i am him trust <br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
-
-<!--
-**BigGay-AL/BigGay-AL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
