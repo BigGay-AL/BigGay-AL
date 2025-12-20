@@ -11,7 +11,7 @@ Im still tryna figure out how to do all this lollll, I hate thats its so similar
 
 Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 
--I LOVE south park sooooooo much
+-I LOVE south park sooooooo much <br>
 -I draw but its more for myself cuz it looks crappy
 -I lovelovelove stan so much, hes me i am him trust
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
