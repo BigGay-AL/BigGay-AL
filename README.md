@@ -2,9 +2,9 @@
   <img src="https://64.media.tumblr.com/3cb6354134251785e9723ce95579bead/9392aef0a65230e1-fc/s1280x1920/e4eff49783ad71f704d7893be6a535c60f3455d5.pnj" width="200"/>
 </p>
 
-<p align="center">
+<h1 align="center">
 CALL ME AL!!!
-</p>
+</h1>
 
 <!--
 **BigGay-AL/BigGay-AL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
