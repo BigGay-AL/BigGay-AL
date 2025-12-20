@@ -9,7 +9,7 @@ CALL ME AL!!!
 <p align="center">
 Im still tryna figure out how to do all this lollll, I hate thats its so similar but also so different than spacehey 💔💔<br>
 <br>
-----------------
+----------------------------------------
 <br>
 <br>
 
@@ -17,5 +17,8 @@ Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 
 -I LOVE south park sooooooo much <br>
 -I draw but its more for myself cuz it looks crappy <br>
+-Style is my top ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
+-Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
+-I may or may not be a lil scared of cats.. (still love them tho)<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
