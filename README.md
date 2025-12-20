@@ -3,10 +3,8 @@
 </p>
 
 <p align="center">
-## CALL ME AL!!!
+CALL ME AL!!!
 </p>
-
-## CALL ME AL!!!
 
 <!--
 **BigGay-AL/BigGay-AL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
