@@ -9,6 +9,10 @@ CALL ME AL!!!
 <p align="center">
 Im still tryna figure out how to do all this lollll, I hate thats its so similar but also so different than spacehey 💔💔
 
+#Quick stuff about me, its gonna look ugly till i decide to fix it lolz
+
+
+
 <!--
 **BigGay-AL/BigGay-AL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
