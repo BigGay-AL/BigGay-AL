@@ -12,7 +12,7 @@
 <p align="center">
  <b>YESYESYES TO C+H !!!</b> <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
-  sometimes im off tab, so plz dont think im ignoring u, ill respond back the second I get back on pony town!!
+  sometimes im off tab, so plz dont think im ignoring u, ill respond back the second I get back on pony town!!<br>
   ily south park ponies ❤️❤️❤️
 <br>
 
