@@ -41,8 +41,8 @@ Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 <img src="https://64.media.tumblr.com/b2a7e557ede0152b4e3474c9e8a64258/fd6ece9ef1e03be2-f4/s250x400/30fbd672d3897724ab544c9d048c813a55879e01.gifv" width="150"/>
 <img src="https://64.media.tumblr.com/20a6d13bce9e1d00a3aeed46c68f1ab7/75e5a5589ac89a9b-be/s250x400/804f67b1cfd22481757e665981a37496924f3b57.webp" width="150"/>
 <img src="https://64.media.tumblr.com/f63967f87579dc59fdc3b454267ecc57/75e5a5589ac89a9b-70/s250x400/ac3eb896351d430472f2b53ea171ab18888fdb8f.gifv" width="150"/>
-<img src="" width="150"/>
-<img src="" width="150"/>
+<img src="https://64.media.tumblr.com/59737ad60baf15a1fba238b116bf8bc7/b8ceb8680ae6e8d7-58/s250x400/bcfe86d8c2e8c8c9767236642740114727cf9e27.gifv" width="150"/>
+<img src="https://64.media.tumblr.com/9e94d626db99748e82edc8ba890aa0e9/20bdefe1e685d90a-23/s250x400/c5ac8779bead3b1ffdec5060e59ca4f5e72a20c8.gifv" width="150"/>
 <img src="" width="150"/>
 <img src="" width="150"/>
 <img src="" width="150"/>
