@@ -1,6 +1,6 @@
 <p align="center">
-  <img src="https://img1.picmix.com/output/stamp/normal/7/1/6/4/1884617_5221b.gif" width="200"/>
-  <img src="https://64.media.tumblr.com/071444ea0b73b615400d93a2ea98c77e/399d1fd06c45a9e5-3e/s1280x1920/e088cfae65375b2378f49ec1228e3bf4a34e2d2b.pnj" width="200"/>
+  <img src="https://img1.picmix.com/output/stamp/normal/7/1/6/4/1884617_5221b.gif" width="100"/>
+  <img src="https://64.media.tumblr.com/071444ea0b73b615400d93a2ea98c77e/399d1fd06c45a9e5-3e/s1280x1920/e088cfae65375b2378f49ec1228e3bf4a34e2d2b.pnj" width="100"/>
   <img src="https://img1.picmix.com/output/stamp/normal/7/1/6/4/1884617_5221b.gif" width="200"/>
 </p>
 
