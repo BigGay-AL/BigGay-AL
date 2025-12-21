@@ -10,8 +10,10 @@ CALL ME AL!!!
 C+H YESYESYES I LOVEEEE WHEN POEPLE SIT WITH ME, and if u wanna ttm feel completely free, Ill be a lil awkward but i promise u im filled with joy, feel free to interact literally any time I promise Im not scary ❤️❤️❤️❤️❤️❤️ just a warning tho, if im at the south park area im likely off tab, so if i dont reply immedietaly plz dont think im ignoring u 😥 <br>
   ALSO, if we're sitting together and u wanna leave or walk away, u dont even gotta say anything, u can just go, I get ittt <br>
 <br>
-  
-------------------------------------------------------------------------------------------------------------------
+
+  <p align="center">
+<img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/>
+</p>
 
 <br>
 <br>
