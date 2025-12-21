@@ -21,13 +21,17 @@ C+H YESYESYES I LOVEEEE WHEN POEPLE SIT WITH ME, and if u wanna ttm feel complet
 <br>
 <br>
 
-Quick stuff about me, its gonna look ugly till i decide to fix it lolz
+Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 
 -I LOVE south park sooooooo much <br>
 -I draw but its more for myself cuz it looks crappy <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
 -Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
+-My favourite colour lowkkk red with purple right behind<br>
+-My fav number 58 lllol<br>
+-I love listening to people talk<br>
+-Im stupid and bi
 -I may or may not be a lil scared of cats.. (still love them tho)<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
 <br>
