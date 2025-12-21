@@ -27,4 +27,4 @@ Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
 <br>
 <br>
-<img src="https://64.media.tumblr.com/e56988adc244acb9fefa745d9fd97c43/c35b95fb69cd6ee2-7e/s250x400/4750d66b3cb92a17a2ec1a3c66d9213678c8540b.gifv" width="200"/>
+<img src="https://64.media.tumblr.com/e56988adc244acb9fefa745d9fd97c43/c35b95fb69cd6ee2-7e/s250x400/4750d66b3cb92a17a2ec1a3c66d9213678c8540b.gifv" width="100"/>
