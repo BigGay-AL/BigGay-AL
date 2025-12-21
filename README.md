@@ -22,7 +22,6 @@
 </p>
 
 <br>
-<br>
 
 Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 
