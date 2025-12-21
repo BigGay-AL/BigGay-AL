@@ -28,3 +28,4 @@ Quick stuff about me, its gonna look ugly till i decide to fix it lolz
 <br>
 <br>
 <img src="https://64.media.tumblr.com/e56988adc244acb9fefa745d9fd97c43/c35b95fb69cd6ee2-7e/s250x400/4750d66b3cb92a17a2ec1a3c66d9213678c8540b.gifv" width="150"/>
+<img src="https://64.media.tumblr.com/066a67f377c8d3c6b814114db7db8433/c35b95fb69cd6ee2-b4/s250x400/4de3750ab648d8e492a5a6d68840e8020a625593.gifv" width="150"/>
