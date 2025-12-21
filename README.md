@@ -33,7 +33,7 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -My favourite colour lowkkk red with purple right behind<br>
 -My fav number 58 lllol<br>
 -I love listening to people talk<br>
--Im stupid and bi
+-Im stupid and bi<br>
 -I may or may not be a lil scared of cats.. (still love them tho)<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
 <br>
