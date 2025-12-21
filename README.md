@@ -15,6 +15,7 @@
   sometimes im off tab, so plz dont think im ignoring u, ill respond back the second I get back on pony town!!<br>
   ily south park ponies ❤️❤️❤️
 <br>
+#SORRY IF I SOUND LIKE A DRY TEXTER, i like writing similarly do how i talk irl, and obv every word i say isnt in caps so if i write lmao im probably giggling irl#
 
   <p align="center">
 <img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/>
