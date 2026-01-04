@@ -10,6 +10,7 @@
 </h1>
 
 <p align="center">
+  <b>FOR PONY TOWN</b> <br>
  <b>YESYESYES TO C+H !!!</b> <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
   sometimes im off tab, so plz dont think im ignoring u, ill respond back the second I get back on pony town!!<br>
@@ -34,7 +35,6 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -My fav number 58 lllol<br>
 -I love listening to people talk<br>
 -Im stupid and bi<br>
--I may or may not be a lil scared of cats.. (still love them tho)<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
 <br>
 <br>
