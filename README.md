@@ -8,9 +8,8 @@
 <img src= "https://64.media.tumblr.com/c8b3ef60338f65fb7a124f63415e79d7/5d5319bc284f7290-7e/s1280x1920/e3b297673a723d7c70ef86450caea1934a21c6ac.pnj" width="400"/> <br>
 </h1>
 
-<h1 align="center">
+<p align="center">
   <b>FOR PONY TOWN</b> <br>
-</h1>
 <p align="center">
   <b>YESYESYES TO C+H !!!</b> <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
