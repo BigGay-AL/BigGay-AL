@@ -10,7 +10,7 @@
 
 <h1 align="center">
   <b>FOR PONY TOWN</b> <br>
-</h1>h1>
+</h1>
 <p align="center">
   <b>YESYESYES TO C+H !!!</b> <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
