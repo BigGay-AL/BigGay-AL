@@ -9,7 +9,7 @@
 </h1>
 
 <p align="center">
-  <b>FOR PONY TOWN # </b> <br>
+  <b>FOR PONY TOWN </b> # <br>
 </p>
 <p align="center">
   <b>YESYESYES TO C+H !!!</b> <br>
