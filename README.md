@@ -5,7 +5,7 @@
 </p>
 
 <h1 align="center">
-<img src= "https://64.media.tumblr.com/c8b3ef60338f65fb7a124f63415e79d7/5d5319bc284f7290-7e/s1280x1920/e3b297673a723d7c70ef86450caea1934a21c6ac.pnj" width="400"/> <br>
+<img src= "https://www.tumblr.com/biggay--al/805642459936849920?source=share" width="400"/> <br>
 </h1>
 
 <p align="center">
