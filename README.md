@@ -8,6 +8,10 @@
 <img src= "https://64.media.tumblr.com/c0890a1ca98f2ab0b9d51d7fccefbc5c/0377debae02bcfac-99/s1280x1920/f5fefe6a40e4625342c560aaea90cbc8af1eb531.pnj" width="400"/> <br>
 </p>
 
+<br>
+<p align="center">
+<img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/> <br>
+
 <p align="center">
   <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="150"/>
 </p>
