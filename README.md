@@ -9,7 +9,7 @@
 </h1>
 
 <p align="center">
-  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="100"/>
+  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="150"/>
 </p>
 <p align="center">
   <b>FOR PONY TOWN </b> <br>
@@ -23,7 +23,7 @@
 <br> <br>
    <b>SORRY IF I SOUND LIKE A DRY TEXTER, i like writing similarly do how i talk irl, and obv every word i say isnt in caps so if i write lmao im probably giggling irl</b> 
    <p align="center">
-  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21icWN4aGxvb3E5cnB3MnNkbDVld2t4MGY4aXFmOHJ2c2d4OTBoNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/zjqIDDinPQ6hLaFxuz/giphy.gif" width="100"/>
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21icWN4aGxvb3E5cnB3MnNkbDVld2t4MGY4aXFmOHJ2c2d4OTBoNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/zjqIDDinPQ6hLaFxuz/giphy.gif" width="150"/>
 </p>
 
   <p align="center">
