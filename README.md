@@ -18,7 +18,7 @@
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
   YESYESYES TO C+H !!! <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
-  sometimes im off tab, so plz dont think im ignoring u, ill respond back the second I get back on pony town!!<br>
+  sometimes im off tab, and whispering can help me see your message :]] <br>
   ily south park ponies ❤️❤️❤️
 <br> <br>
    <b>SORRY IF I SOUND LIKE A DRY TEXTER, i like writing similarly do how i talk irl, and obv every word i say isnt in caps so if i write lmao im probably giggling irl</b> 
