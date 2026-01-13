@@ -5,11 +5,11 @@
 </p>
 
 <h1 align="center">
-<img src= "https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="400"/> <br>
+<img src= "" width="400"/> <br>
 </h1>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/071444ea0b73b615400d93a2ea98c77e/399d1fd06c45a9e5-3e/s1280x1920/e088cfae65375b2378f49ec1228e3bf4a34e2d2b.pnj" width="100"/>
+  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="100"/>
 </p>
 <p align="center">
   <b>FOR PONY TOWN </b> <br>
