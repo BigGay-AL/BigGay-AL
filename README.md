@@ -22,6 +22,9 @@
   ily south park ponies ❤️❤️❤️
 <br> <br>
    <b>SORRY IF I SOUND LIKE A DRY TEXTER, i like writing similarly do how i talk irl, and obv every word i say isnt in caps so if i write lmao im probably giggling irl</b> 
+   <p align="center">
+  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21icWN4aGxvb3E5cnB3MnNkbDVld2t4MGY4aXFmOHJ2c2d4OTBoNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/zjqIDDinPQ6hLaFxuz/giphy.gif" width="100"/>
+</p>
 
   <p align="center">
 <img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/>
