@@ -42,8 +42,11 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -I draw but its more for myself cuz it looks crappy <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
+-Im autistic so sometimes i might not get stuff, if u could be straightforward with me if i dont understand thatll be greatt<br>
+-Im really chill with anything, talk to me about literally anything i wont judge u<br>
 -Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
--My favourite colour lowkkk red with purple right behind<br>
+-My favourite colour lowkkk red<br>
+-I have a fursona so uh.. maybe dni if ur a furry hater...<br>
 -My fav number 58 lllol<br>
 -I love listening to people talk<br>
 -Im stupid and bi<br>
