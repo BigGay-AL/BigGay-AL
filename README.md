@@ -40,11 +40,11 @@
   <b>WHAT MY STATUS MEANS </b> <br>
 </p>
 <p align="center">
-  <b>online- im currently on game so i should reply quickly <br>
+  online- im currently on game so i should reply quickly <br>
   away- im likely off tab, but whisper to me and ill reply when i see <br>
   busy- i probably wont be replying quick, but still feel free to talk if ur fine with waiting <br>
   i wont get mad at literally anything this is just for u guys to know :]] <br> 
-  but no matter what status i have, C+H is always fine!! </b>
+  but no matter what status i have, C+H is always fine!!
    <p align="center">
      
   <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21icWN4aGxvb3E5cnB3MnNkbDVld2t4MGY4aXFmOHJ2c2d4OTBoNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/zjqIDDinPQ6hLaFxuz/giphy.gif" width="150"/>
