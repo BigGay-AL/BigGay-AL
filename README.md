@@ -42,7 +42,7 @@
 <p align="center">
   online- im currently on game so i should reply quickly <br>
   away- im likely off tab, but whisper to me and ill reply when i see <br>
-  busy- i probably wont be replying quick <br>
+  busy- im unable to reply too much <br>
   <br>
   i wont get mad at literally anything this is just for u guys to know :]] <br>
   but no matter what status i have, C+H is always fine!!
