@@ -23,7 +23,8 @@
   YESYESYES TO C+H !!! <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
   sometimes im off tab, and whispering can help me see your message :]] <br>
-  ily south park ponies ❤️❤️❤️
+  ily south park ponies ❤️❤️❤️ <br>
+  i love reading githubs and strawpages, so if youre in the south park area with it linked i probablllyyy already checked it all
 <br> <br>
    <b>SORRY IF I SOUND LIKE A DRY TEXTER, i like writing similarly do how i talk irl, and obv every word i say isnt in caps so if i write lmao im probably giggling irl</b> 
    <p align="center">
