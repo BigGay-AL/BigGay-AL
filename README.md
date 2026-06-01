@@ -19,6 +19,8 @@
   <b>FOR PONY TOWN </b> <br>
 </p>
 <p align="center">
+  <b>I KEEP SEEING  WHISPERS HOURS LATER, IF THAT HAPPENS IM SO SORRY I SWEARI DONT MEAN TO IGNORE ITS JUST WHEN ON BUSY IM USUALLY NOT LOOKING AT THEGAME AT ALL, ik it already said this on here but i need it to be bolder LOL</b> <br>
+  <br>
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
   YESYESYES TO C+H !!! <br>
   feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
