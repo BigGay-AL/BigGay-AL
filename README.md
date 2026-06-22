@@ -63,7 +63,8 @@
 
 Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 
--I LOVE south park sooooooo much <br>
+- IMPORTANT - PLEASE dont challenge my likes or headcannons, its one of the only things that someone can do that pisses me the FUCK off <br>
+- -I LOVE south park sooooooo much <br>
 -I draw but its more for myself cuz it looks crappy <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
