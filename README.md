@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src="https://ibb.co/BKZYF1NY" width="150"/>
+  <img src="https://i.ibb.co/6JPqLdBq/hi-smilkey-face.png" width="150"/>
 </p>
 
 <p align="center">
