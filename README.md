@@ -64,7 +64,7 @@
 Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 
 - IMPORTANT - PLEASE dont challenge my likes or headcannons, its one of the only things that someone can do that pisses me the FUCK off <br>
-- -I LOVE south park sooooooo much <br>
+-I LOVE south park sooooooo much <br>
 -I draw but its more for myself cuz it looks crappy <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
@@ -73,7 +73,6 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
 -My favourite colour lowkkk red<br>
 -I have a fursona so uh.. maybe dni if ur a furry hater...<br>
--My fav number 58 lllol<br>
 -I love listening to people talk<br>
 -Im stupid and bi<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
