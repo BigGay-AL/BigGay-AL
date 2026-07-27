@@ -8,6 +8,10 @@
   <img src="https://i.ibb.co/6JPqLdBq/hi-smilkey-face.png" width="500"/>
 </p>
 
+  <p align="center">
+<img src= "https://64.media.tumblr.com/07e207b6862c13973df495d48ca2976c/de07e6554ce8bde4-b5/s400x600/aed8da65476d9d1fb3fdd1280f05b5768b7d91ea.gifv" width="700"/>
+</p>
+
 <p align="center">
   <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="150"/>
 </p>
