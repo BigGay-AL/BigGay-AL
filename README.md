@@ -13,10 +13,10 @@
 </p>
 
 <p align="center">
-  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="150"/>
+  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="50"/>
 </p>
 <p align="center">
-  <b>FOR PONY TOWN </b> <br>
+  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="50"/> <b>FOR PONY TOWN </b> <br>
 </p>
 <p align="center">
   <b>I KEEP SEEING  WHISPERS HOURS LATER, IF THAT HAPPENS IM SO SORRY I SWEARI DONT MEAN TO IGNORE ITS JUST WHEN ON BUSY IM USUALLY NOT LOOKING AT THEGAME AT ALL, ik it already said this on here but i need it to be bolder LOL</b> <br>
