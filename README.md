@@ -4,13 +4,7 @@
   <img src="https://img1.picmix.com/output/stamp/normal/7/1/6/4/1884617_5221b.gif" width="120"/>
 </p>
 
-<p align="center">
-<img src= "https://ibb.co/BKZYF1NY" width="400"/> <br>
-</p>
 
-<br>
-<p align="center">
-<img src= "https://private-user-images.githubusercontent.com/216438269/584733267-819ded86-cfa2-4457-941e-c9647d5ac39c.gif?jwt=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3Nzg3OTY5ODIsIm5iZiI6MTc3ODc5NjY4MiwicGF0aCI6Ii8yMTY0MzgyNjkvNTg0NzMzMjY3LTgxOWRlZDg2LWNmYTItNDQ1Ny05NDFlLWM5NjQ3ZDVhYzM5Yy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjYwNTE0JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI2MDUxNFQyMjExMjJaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1hZGNmNjNkNWE0YzI1NjMxYzMzMjA5MjU1MzNjMzE3MTUzYjVjYjEyOWZjYmQyOGM3MmYxNmVhZjcwODIwZmJkJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCZyZXNwb25zZS1jb250ZW50LXR5cGU9aW1hZ2UlMkZnaWYifQ._YNq_wvTlkNw6UYfEoI9bViH0wnVfT6oN-HUth3DMZE" width="700"/> <br>
 
 <p align="center">
   <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="150"/>
