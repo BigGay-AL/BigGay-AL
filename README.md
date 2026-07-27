@@ -1,5 +1,3 @@
-
-
 <p align="center">
   <img src="https://i.ibb.co/6JPqLdBq/hi-smilkey-face.png" width="500"/>
 </p>
