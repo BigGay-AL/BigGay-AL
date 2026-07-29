@@ -17,13 +17,12 @@
   <br>
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
   YESYESYES TO C+H !!! <br>
-  feel completely free to interact with meee, I love when people do i promise im not evil loll<br>
+  PLZZZPLZ INT i may act like super awkward but DONT mistake that for me being evil I LOVE WHENPEOPLE TALK TO ME I JUST GET NERVOIUS<br>
   sometimes im off tab, and whispering can help me see your message :]] <br>
   SOMETIMES i also might not see your message at all even if you do whisper until its too late to reply, and if that happens im soorrtryy sorry sorry sorry its happened to me so many times now i swear its nothing against you if i miss your message<br>
   ily south park ponies ❤️❤️❤️ <br>
   i love reading githubs and strawpages, so if youre in the south park area with it linked i probablllyyy already checked it all
 <br> <br>
-   <b>SORRY IF I SOUND LIKE A DRY TEXTER, its cuz idk if everyone is fine with my humor so usually i gotta getto know u better first ssoorrysorry</b> 
    <p align="center">
 
 <p align="center">
