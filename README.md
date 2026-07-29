@@ -67,6 +67,7 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -I have a fursona so uh.. maybe dni if ur a furry hater...<br>
 -Idk why im not writing this at the top but whatevrr i love stan marsh sommuch im literall him in eevery way i actually lovehim<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im linking other stuff maybe idk i work on my pages like one thing every hundred years so
+-Look at my strawpage and stuff for dnis maybe if you want
 <br>
 <br>
 <p align="center">
