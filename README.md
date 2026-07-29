@@ -56,19 +56,17 @@
 
 Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 
-- IMPORTANT - PLEASE dont challenge my likes or headcannons, its one of the only things that someone can do that pisses me the FUCK off <br>
+-IMPORTANT - PLEASE dont challenge my likes or headcannons, its one of the only things that someone can do that pisses me the FUCK off <br>
 -I LOVE south park sooooooo much <br>
--I draw but its more for myself cuz it looks crappy <br>
+-I draw kind of yes mostly south park <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
--Im autistic so sometimes i might not get stuff, if u could be straightforward with me if i dont understand thatll be greatt<br>
+-I kindof struggle to understand a lot of cues so if i say soemthing weird or sound insensitive im really sorry i dontmean to :[[<br>
 -Im really chill with anything, talk to me about literally anything i wont judge u<br>
 -Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
--My favourite colour lowkkk red<br>
 -I have a fursona so uh.. maybe dni if ur a furry hater...<br>
--I love listening to people talk<br>
--Im stupid and bi<br>
--UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im gonna link more socials and stuff i just wanna make everything look neat sozz
+-Idk why im not writing this at the top but whatevrr i love stan marsh sommuch im literall him in eevery way i actually lovehim<br>
+-UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im linking other stuff maybe idk i work on my pages like one thing every hundred years so
 <br>
 <br>
 <p align="center">
