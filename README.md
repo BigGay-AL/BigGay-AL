@@ -37,9 +37,9 @@
   <b>WHAT MY STATUS MEANS </b> <br>
 </p>
 <p align="center">
-  online- im currently on game so i should reply quickly <br>
-  away- im likely off tab, but whisper to me and ill reply when i see <br>
-  busy- im off tab or not looking so i might miss whispers too until too late <br>
+  online- im currently on game plz talk to me plzplz <br>
+  away- im prob on another tab while pony town is still open on the side, so whisper to me and ill reply when i seeee <br>
+  busy- im off tab or not looking and completrely not paying attention so i might miss whispers too until too late <br>
   <br>
   i wont get mad at literally anything this is just for u guys to know :]] <br>
   but no matter what status i have, C+H is always fine!!
