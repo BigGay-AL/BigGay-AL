@@ -17,7 +17,7 @@
   <br>
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
   YESYESYES TO C+H !!! <br>
-  PLZZZPLZ INT i may act like super awkward but DONT mistake that for me being evil I LOVE WHENPEOPLE TALK TO ME I JUST GET NERVOIUS<br>
+  PLZZZPLZ INT i may act like super awkward but DONT mistake that for me being evil I LOVE WHENPEOPLE TALK TO ME I JUST GET NERVOIUS PLEASE BEFRIENDS WITHN KMEM PLEPPLELPPORLEWEAS<br>
   sometimes im off tab, and whispering can help me see your message :]] <br>
   SOMETIMES i also might not see your message at all even if you do whisper until its too late to reply, and if that happens im soorrtryy sorry sorry sorry its happened to me so many times now i swear its nothing against you if i miss your message<br>
   ily south park ponies ❤️❤️❤️ <br>
