@@ -1,8 +1,3 @@
-<p align="center">
-  <a href="https://i.airbuds.fm/biggayal/eXaH90H27S">
-    <img src="https://vercel.app" alt="My Amazon Music Now Playing" />
-  </a>
-</p>
 
 
 <p align="center">
