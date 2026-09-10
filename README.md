@@ -43,7 +43,7 @@
   away- im prob on another tab while pony town is still open on the side, so whisper to me and ill reply when i seeee <br>
   busy- im off tab or not looking and completrely not paying attention so i might miss whispers too until too late <br>
   <br>
-  i wont get mad at literally anything this is just for u guys to know :]] <br>
+  i wont get mad at literally anything this is just for u guys to know winky face emoji <br>
   but no matter what status i have, C+H is always fine always always always
    <p align="center">
      
