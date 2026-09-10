@@ -69,8 +69,7 @@ Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
 -I have a fursona so uh.. maybe dni if ur a furry hater...<br>
 -Idk why im not writing this at the top but whatevrr i love stan marsh sommuch im literall him in eevery way i actually lovehim<br>
 -UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im linking other stuff maybe idk i work on my pages like one thing every hundred years so<br>
--Look at my strawpage and stuff for dnis maybe if you want
-<br>
+-Look at the repository at the bottom for my dni orrr my pronouns page orrrr my strawpage if u want, for the most part im fine with anyone i think i do block freely before i know people for random stuff tho so um
 <br>
 <p align="center">
 <img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/> <br>
