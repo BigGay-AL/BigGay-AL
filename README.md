@@ -17,6 +17,7 @@
 <p align="center">
   <b>I KEEP SEEING  WHISPERS HOURS LATER, IF THAT HAPPENS IM SO SORRY I SWEARI DONT MEAN TO IGNORE ITS JUST WHEN ON BUSY IM USUALLY NOT LOOKING AT THEGAME AT ALL, ik it already said this on here but i need it to be bolder LOL</b> <br>
   <br>
+  <b>PLEASE DONT START DRAMA WITH ME, i simply wont aknowlege you, i see it happening on here all the time and i hate it if you do that DONT INTERACT WITH ME</b> <br>
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
   YESYESYES TO C+H !!! <br>
   PLZZZPLZ INT i may act like super awkward but DONT mistake that for me being evil I LOVE WHENPEOPLE TALK TO ME I JUST GET NERVOIUS PLEASE BEFRIENDS WITHN KMEM PLEPPLELPPORLEWEAS<br>
