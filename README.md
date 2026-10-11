@@ -7,7 +7,7 @@
 </p>
 
 <p align="center">
-  <img src="https://media3.giphy.com/media/v1.Y2lkPTc5MGI3NjExZjh4NHA5ZHBzNzM0OGkwcDRwazczdzNqNmNoNXA1cTNuY3dpNWR6NyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/csOKiABUHMvpEzv6pN/giphy.gif" width="120"/>
+  <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNWJjeGthbzdlZmhpMzB5c2Q1aWN2d3F1MjkxajFnMmlzZmlqd3lsbyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/udEiFacZAdzzW9zkir/giphy.gif" width="120"/>
 </p>
 <p align="center"> 
   <b>FOR PONY TOWN </b> <br>
@@ -46,7 +46,7 @@
   but no matter what status i have, C+H is always fine always always always
    <p align="center">
      
-  <img src="https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExb21icWN4aGxvb3E5cnB3MnNkbDVld2t4MGY4aXFmOHJ2c2d4OTBoNSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/zjqIDDinPQ6hLaFxuz/giphy.gif" width="150"/>
+  <img src="https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExNHIzejI5bnIzMnEycnk3OWxvaDhsbTRpMjRnM3JsMzllZWxoYTh6eiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/EL5axtXGks5GTfbZqZ/giphy.gif" width="150"/>
 </p>
 
   <p align="center">
