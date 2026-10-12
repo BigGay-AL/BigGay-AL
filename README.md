@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/JRXMFGVm/stanmarshstanmarshkylebrofolovskitheyretogetheromgomg.png" width="700"/>
+  <img src="https://files.catbox.moe/tv0n29.png" width="700"/>
 </p>
 
   <p align="center">
