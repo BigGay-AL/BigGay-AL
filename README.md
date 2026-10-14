@@ -17,9 +17,9 @@
   <br>
   <b>PLEASE DONT START DRAMA WITH ME, i simply wont aknowlege you, i see it happening on here all the time and i hate it if you do that DONT INTERACT WITH ME, im on pony town to be happy and whimsical</b> <br>
   <b>DNI IF YOU DONT RESPECT FANDOM SPACES</b> <br>
-  YESYESYES TO C+H !!! <br>
+  YES C+H YEES <br>
   PLZZZPLZ INT i may act like super awkward but DONT mistake that for me being evil I LOVE WHENPEOPLE TALK TO ME I JUST GET NERVOIUS PLEASE BEFRIENDS WITHN KMEM PLEPPLELPPORLEWEAS<br>
-  sometimes im off tab, and whispering can help me see your message :]] <br>
+  usually im off tab, so whispering is the best way to talkto me so i see <br>
   SOMETIMES i also might not see your message at all even if you do whisper until its too late to reply, and if that happens im soorrtryy sorry sorry sorry its happened to me so many times now i swear its nothing against you if i miss your message<br>
   ily south park ponies ❤️❤️❤️ <br>
   i love reading githubs and strawpages, so if youre in the south park area with it linked i probablllyyy already checked it all
@@ -55,20 +55,20 @@
 
 <br>
 
-Quick random stuff about me, its gonna look ugly till i decide to fix it lolz
+Quick random stuff about me, its gonna look ugly till i decide to fix it ok
 
 -IMPORTANT - PLEASE dont challenge my likes or headcannons, its one of the only things that someone can do that pisses me the FUCK off <br>
--I LOVE south park sooooooo much <br>
--I draw kind of yes mostly south park <br>
+-Pretty clearly south park is myy main thing <br>
+-I draw kind of mostly south park mostly stanky <br>
 -Style is my fav ship ever, I love them so much bro theyre cannon i swear aghghhh<br>
 -I lovelovelove stan so much, hes me i am him trust <br>
 -I kindof struggle to understand a lot of cues so if i say soemthing weird or sound insensitive im really sorry i dontmean to :[[<br>
 -Im really chill with anything, talk to me about literally anything i wont judge u<br>
 -Dogs are my favourite animals ever theyre such little babies ahshhaj<br>
 -I have a fursona so uh.. maybe dni if ur a furry hater...<br>
--Idk why im not writing this at the top but whatevrr i love stan marsh sommuch im literall him in eevery way i actually lovehim<br>
--UHhhhhhhhhhhhh idk what else to add oopppsssiieeesss anyway uh im linking other stuff maybe idk i work on my pages like one thing every hundred years so<br>
--Look at the repository at the bottom for my dni orrr my pronouns page orrrr my strawpage if u want, for the most part im fine with anyone i think i do block freely before i know people for random stuff tho so um
+-Writing this againto get it across i love stan marsh sommuch im literall him in eevery way i actually lovehim, my attachement towards him is insane<br>
+-UHhhhhhhhhhhhh idk what else to add oooops anyway uh im linking other stuff maybe idk i work on my pages like one thing every hundred years so<br>
+-Look at my pronouns page for dnis orrrr my strawpage if u want, for the most part im fine with anyone i think i do block freely before i know people for random stuff tho so um
 <br>
 <p align="center">
 <img src= "https://64.media.tumblr.com/b768e1cdb8fef630eded1bdde4cc7530/19abe603d8eb63cc-01/s400x600/eb3328d14810989aa3f0fc94d3d9910995870788.pnj" width="700"/> <br>
